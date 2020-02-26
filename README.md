@@ -1,2 +1,1 @@
 # chistiy
-transgender
